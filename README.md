@@ -1,4 +1,4 @@
-# Adobe-Premiere-Pro-Version-2026
+# Adobe Premiere Pro 2026
 
 # 🎬 EDIT YOUR STORY
 
