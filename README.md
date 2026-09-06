@@ -1,0 +1,1 @@
+# adobe-premiere-pro-version-2026
